@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a frontend developer
+I am a dedicated professional with a passion for excellence. I am committed to continuous learning and development to stay up-to-date with the latest trends and technologies in my field. I am confident in my ability to work collaboratively with cross-functional teams to achieve project objectives and exceed expectations.
 
 
 ## 🌐 Socials:
